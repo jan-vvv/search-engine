@@ -1,0 +1,1 @@
+1.Chose astromnomy because it has a lot of chained topics that can make it interesting to jump from one topic to other making the rabbit hole concept very fitting . 2 .Chose computer science because it makes learning difficult things by tackling one topic at a time .
